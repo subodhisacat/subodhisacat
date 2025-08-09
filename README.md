@@ -1,4 +1,4 @@
-# Hello👋 I'm Subodh .
+# Hello👋 I'm Subodh Timalsina.
 
 > Meow Meow Meow Meow
 
